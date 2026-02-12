@@ -1,4 +1,4 @@
-# Jiawen Niu | User Research Portofolio
+# Jiawen Niu | User Research Portfolio
 市场调研|用户洞察|消费者行为分析
 ## About Me
 我是一名用户研究方向的从业者，专注于消费者洞察、品牌认知和行为分析。在过去的项目中，我主导了多项行业（母婴奶粉、饮品、快餐）品牌用户研究项目。
